@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with advanced opensea sniper bot | bundle-transactions + whitelist-bypass, the #1 opensea sniper bot. Includes bundle-transactions and whitelist-bypass
 
 
 
